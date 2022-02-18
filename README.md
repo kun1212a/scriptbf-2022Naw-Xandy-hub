@@ -1,1 +1,0 @@
-# scriptbf-2022Naw-Xandy-hub
